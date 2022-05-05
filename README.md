@@ -1,0 +1,1 @@
+# he-relationship-between-crime-rate-and-socio-economic-variables-in-the-case-of-New-York-City
